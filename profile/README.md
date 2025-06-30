@@ -1,3 +1,3 @@
 ## Andrii Co.
 
-Prohects of Andrii Co.
+Projects of Andrii Co.
